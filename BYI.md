@@ -1,0 +1,11 @@
+- ⚠️I am a minor, please do not discuss NSFW [excluding gore] with me if you're 18+⚠️
+- Name(s); Moirveros, Milk, Bibli
+- Pronouns; Any
+- Gendered Terms; Any
+- Identity; Nonbinary / Transmasc
+- ✍️‼️ RP info ‼️✍️
+- I'm semi-lit, and expect you to be as well! 
+- My characters sometimes have sensitive topics attached to them.
+- Do not <i>genuinely</i> romanticize my morally horrible ocs. Jokes are fine!
+- 💞A lot of times my rps revolve around ships, even if it wasn't the original intention. Please tell me if you're not comfortable w/ that.
+
